@@ -21,4 +21,4 @@
 记得收藏本页，每天更新20+条日本无码番号资源，永久免费，是你不可错过的AV搜索导航平台。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kong145/545412 ）</span>
